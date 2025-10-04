@@ -9,15 +9,42 @@ This website is in construction.
 
 ## Who we are
 
-We're TAG
+We're TAG: Teaching-focused faculty Advocacy Group. Teaching Focused Faculty, or TFF is a group of lecturers, lab instructors,
+visiting faculty, staff who teach, and more.
 
 ## Our Mission
 
 Advocating for TFFs at Smith College
 
+## What we do
+
+We meet, organize, and create community for TFF. We currently have
+four active committees: 
+
+  * Workload and Compensation, 
+  * Governance, 
+  * Data, 
+  * Outreach.
+
+## What we have accomplished
+
+  * A name change, from NTT to TFF 
+  * Increased pay for lab instructors
+  * Phased retirement
+  * Eligibility for the Charis medal and, for senior TFF, for serving as Sherrerd Center teaching mentors.
+  * Maintaining communication between TFF and College Hall
+
+## Contact us:
+
+TAGSmith@proton.me
+
+
 ## How to Join
 
-TAG-You're It!
+There are two good options: 
+
+  * Just reach out (email us)
+  * Come to our next General Meeting (Dates/Locations will be added soon). 
 
 
 
